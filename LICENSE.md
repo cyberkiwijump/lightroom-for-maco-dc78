@@ -1,4 +1,4 @@
-# 
+# Enhance Lightroom for macOS with advanced Lightroom for macOS Tool | version-history + video-trimming, the #1 tool. Includes version-history and video-trimming for a smoother and
 
 
 
